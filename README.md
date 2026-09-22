@@ -53,5 +53,6 @@ performance, trends, and product performance.
 - Email: paulerezimena@proton.me
 
 ---
+Linkedin[www.linkedin.com/in/erezimena-paul-1ab944328]
 
 ⭐ Thanks for visiting my profile!
